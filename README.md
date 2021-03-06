@@ -1,2 +1,0 @@
-# sriramsubramanian.github.io
-Wedbsite
